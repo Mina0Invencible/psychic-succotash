@@ -1,2 +1,2 @@
 # psychic-succotash
-Imágenes sin coherencia e historias, reales o inventadas, creadas por mí. Verás randomamadas absurdas y relatos. no es por ofender a nadie, escuchéd. Todo es humor bizarro tipo YTPH para pasar el rato. Entra bajo tu propio riesgo y diviértete.
+iiiii
